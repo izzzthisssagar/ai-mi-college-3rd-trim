@@ -1,0 +1,1 @@
+# ai-mi-college-3rd-trim
